@@ -2,6 +2,11 @@
 
 ![Sprunki 1996 But Pyramixed](https://raw.githubusercontent.com/sprunkiscrunkly/sprunki-1996-but-pyramixed/refs/heads/main/sprunki-1996-but-pyramixed.png "Sprunki 1996 But Pyramixed")
 
+![Sprunki 1996 But Pyramixed](https://raw.githubusercontent.com/sprunkiscrunkly/sprunki-1996-but-pyramixed/refs/heads/main/sprunki-1996-but-pyramixed-2.png "Sprunki 1996 But Pyramixed")
+
+![Sprunki 1996 But Pyramixed](https://raw.githubusercontent.com/sprunkiscrunkly/sprunki-1996-but-pyramixed/refs/heads/main/sprunki-1996-but-pyramixed-3.png "Sprunki 1996 But Pyramixed")
+
+
 🎵✨ Click to experience the mystical remix: [Sprunki 1996 But Pyramixed](https://sprunksters.com/sprunki-1996-but-pyramixed/ "Sprunki 1996 But Pyramixed")
 
 🎵✨ Alternative portal to the pyramid: [Sprunki 1996 But Pyramixed](https://sprunkiscrunkly.com/sprunki-1996-but-pyramixed/ "Sprunki 1996 But Pyramixed")
